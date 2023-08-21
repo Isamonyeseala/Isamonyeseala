@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Isamonyeseala
+- 👋 Hi, I’m Isa Monyeseala
 - 👀 I’m interested in Technology and learning.
 - 🌱 I’m currently learning Information Technology
 - 📫 How to reach me my instagram is 'Life_thru_isa'
